@@ -3,4 +3,8 @@ With efforts, sacrices and consistency I will master this IT
 
 sandrine helene bell
 jayden mummeen bello
- the love of my life
+ 
+ 
+ I believe in yourself 
+ put in the work
+ pray pray pray 
